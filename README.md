@@ -4,7 +4,7 @@
 * 💻 Student Programmer
 
 Find me elsewhere 🌎  
-* 💼 [LinkedIn](www.linkedin.com/in/otavio-augusto-neves)
+* 💼 [LinkedIn](https://www.linkedin.com/in/otavio-augusto-neves/)
 * :bird: [Twitter](https://twitter.com/otavioasneves)
 * 📸 [Instagram](https://www.instagram.com/otavioasneves/) 
 * 📫 <otavio.neves@outlook.com> 
