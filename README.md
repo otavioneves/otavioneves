@@ -1,7 +1,9 @@
 ### 👋 Hi, I’m @otavioneves 
 
 * 🚀 Eletrical Enginner
-* 💻 Student Programmer
+* 💻 Development Student
+
+<br>
 
 Find me elsewhere 🌎  
 * 💼 [LinkedIn](https://www.linkedin.com/in/otavio-augusto-neves/)
