@@ -1,7 +1,7 @@
 ### 👋 Hi, I’m @otavioneves 
 
 🚀 Eletrical Enginner <br>
-💻 Development Student <br>
+💻 Software Enginner <br>
 
 <br>
 
